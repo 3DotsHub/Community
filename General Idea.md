@@ -1,4 +1,4 @@
-**Website Description: "Tech-Nature Community: Bridging Sustainable Living, Bitcoin, and Circular Economy"**
+**Description: "Tech-Nature Community: Bridging Sustainable Living, Bitcoin, and Circular Economy"**
 
 **Welcome to the Tech-Nature Community: Where Sustainable Living, Bitcoin, and Circular Economy Converge!**
 
