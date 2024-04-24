@@ -2,7 +2,7 @@
 
 **Introduction**
 
-As part of our commitment to fostering sustainable living practices, the Tech-Nature Nexus recognizes the importance of establishing a legal framework that aligns with our values of cooperation, community ownership, and environmental stewardship. In this section, we explore the process of establishing a Spanish cooperative as the legal structure to govern our community and initiatives.
+As part of our commitment to fostering sustainable living practices, the Tech-Nature Community recognizes the importance of establishing a legal framework that aligns with our values of cooperation, community ownership, and environmental stewardship. In this section, we explore the process of establishing a Spanish cooperative as the legal structure to govern our community and initiatives.
 
 **Why Choose a Spanish Cooperative?**
 
